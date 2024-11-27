@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @TJ
+- 👀 I’m interested in ... AI Creation, High quality games creation, film maker, etc. .
+- 🌱 I’m currently learning ...AI Creation 
+- 💞️ I’m looking to collaborate on ...Game Creation 
+- 📫 How to reach me ... tjcodewizard@gmail.com
+- 😄 Pronouns: ...Let Your Conversation Cease...
+- ⚡ Fun fact: ...I am a....
